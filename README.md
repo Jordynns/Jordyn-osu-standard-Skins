@@ -25,3 +25,13 @@ Collection of the osu!standard skins I use :3
 
 # [Rafis HDDT 2022](https://mega.nz/folder/6A0RjC4B#dfjrjAyG_h1zNTsolpXHbQ)
 ![image](https://camo.githubusercontent.com/38abc8840469769b70ca2c58024917c2a6ea43cd58c705bfcbc22a460e5d18b0/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3638393230313539383630353638383936302f3933353937343131343337303431323538342f73637265656e73686f74333335312e6a7067)
+
+-----------------------------------------------------------
+
+# [Vaxei Bacon Boi 1.0 BLUE](https://drive.google.com/drive/folders/1oXwqBrCgGK8EvSMAk0XAt1ixPJ-hbrzg)
+![image](https://camo.githubusercontent.com/ee038346a54573bc0c9bcf2cfbb2c1357341674330b944c3603b2dce3e167e4b/68747470733a2f2f6f73752e7070792e73682f73732f31353832313038332f39353061)
+
+-----------------------------------------------------------
+
+# [INCADESCENT v1.0-Nabulae | Ekoro Edit](https://drive.google.com/drive/folders/1jScDBt-MqImsalNYmNbiZa5MIq4WiKoP)
+![image](https://skimg.osuck.net/75eb0968c0cad960bea79534739c5596.webp)
